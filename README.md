@@ -1,1 +1,0 @@
-# quizzi-educa-part2
